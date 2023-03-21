@@ -1,1 +1,1 @@
-# Clase-econometria-Viernes17-de-marzo
+# Clase-econometria
